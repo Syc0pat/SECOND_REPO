@@ -4,8 +4,16 @@ Hi there this is first version of original file
 
 edit before first pull
 
-
-hi thesere in the deveop file i can mess around howmucbhwver i want bruv
+bruda
 
 
 DUDE WE CAN CHANGE THIS 
+
+/// hey this feature 1
+
+
+featuuuuuureee1 stufff
+
+
+
+//feature 1 done

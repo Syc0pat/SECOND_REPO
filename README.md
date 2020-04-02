@@ -1,5 +1,8 @@
 # SECOND_REPO
 
-Hi there this is first version of original file
+Hi there this is first version of original styleBYA
 
-edit before first pull
+(sorry bugga but this is gotta be added) edit before first pull 
+
+
+OKAY BUDDY so this is a massive change now
